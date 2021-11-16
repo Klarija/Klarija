@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Klarija
+- 👀 I’m interested in gaming,programing and drugs 
+- 🌱 I’m currently learning python and i dont know shit if anyone has any tips and tricks to share i would appreciate your help. 
+- 📫 How to reach me mihajlobecin002@gmail.com
